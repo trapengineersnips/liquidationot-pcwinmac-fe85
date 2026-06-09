@@ -1,4 +1,4 @@
-# 
+# Elite liquidation sniper bot complementos para Mac OS | Exclusivo liquidation sniper bot complementos para PC Windows. Com cache de dados e análise de momento — otimizado para máximo desempenho em cada plataforma.
 
 
 
